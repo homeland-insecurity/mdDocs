@@ -14,11 +14,10 @@
 
 ### Shit to do in AMS
 #### Food
-1) Poffertjes, aka dutch mini pancakes. You can find them all over the city. They are fucking good. [pancake](https://pudgefactor.com/poffertjes-dutch-mini-pancakes/)
-2) This food hall looks pretty dope [food hall](https://foodhallen.nl/amsterdam/food-and-drinks)
-3) Street fries [fries](https://rorymoulton.com/amsterdam-french-fries-frites-frieten/)
-4) If anyone is a fan of cheese [fondue place](https://www.tripadvisor.com/Restaurant_Review-g188590-d1193265-Reviews-Het_Karbeel-Amsterdam_North_Holland_Province.html)
-
+1) Poffertjes, aka [dutch mini pancakes](https://pudgefactor.com/poffertjes-dutch-mini-pancakes/). You can find them all over the city. They are fucking good.
+2) This [food hall](https://foodhallen.nl/amsterdam/food-and-drinks) looks pretty dope.
+3) [Street fries](https://rorymoulton.com/amsterdam-french-fries-frites-frieten/)
+4) If anyone is a fan of [cheese](https://www.tripadvisor.com/Restaurant_Review-g188590-d1193265-Reviews-Het_Karbeel-Amsterdam_North_Holland_Province.html)
 #### Bars/Clubs
 1)
 
