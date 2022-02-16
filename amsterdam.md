@@ -14,4 +14,8 @@
 
 ### Shit to do in AMS
 #### Food
+1)Poffertjes, aka dutch mini pancakes. You can find them all over the city. They are fucking good. [pancake](https://pudgefactor.com/poffertjes-dutch-mini-pancakes/)
+2)
+#### Bars/Clubs
 1)
+
