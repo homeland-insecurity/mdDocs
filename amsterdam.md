@@ -1,4 +1,4 @@
-#Travel plan for Amsterdam
+# Travel plan for Amsterdam
 
 ### Flights
 1) Early May is the cheapest time to fly to AMS from what I've seen on google flights. Round trip is around $500 for a direct flight on AA. 
