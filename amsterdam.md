@@ -2,7 +2,7 @@
 
 ### Flights
 1) Early May is the cheapest time to fly to AMS from what I've seen on google flights. Round trip is around $500 for a direct flight on AA. 
-2) Also, for anyone interested in flying standby, I have 16 friend passes that would cost around $350 round trip. Not a guaranteed seat tho.
+2) Also, for anyone interested in flying standby, I have friend passes on AA that would cost around $350 round trip. Not a guaranteed seat tho.
 3) [Google Flight link](https://www.google.com/travel/flights/search?tfs=CBwQAhoeagcIARIDREZXEgoyMDIyLTA1LTA2cgcIARIDQU1TGh5qBwgBEgNBTVMSCjIwMjItMDUtMTJyBwgBEgNERldwAYIBCwj___________8BQAFIAZgBAQ)
 
 `Estimated Cost: $500`
@@ -19,5 +19,12 @@
 3) [Street fries](https://rorymoulton.com/amsterdam-french-fries-frites-frieten/)
 4) If anyone is a fan of [cheese](https://www.tripadvisor.com/Restaurant_Review-g188590-d1193265-Reviews-Het_Karbeel-Amsterdam_North_Holland_Province.html)
 #### Bars/Clubs
-1)
+1) [Canal booze cruise](https://weareamsterdam.com/product/amsterdam-booze-cruise/)
+2)
+3)
+#### Things to see
+1) There are [tulip festivals](https://tulipfestivalamsterdam.com/event/tulp-festival/) that run through early may and you can take a train to tulip fields.
+2)
+### Day trips from Amsterdam
+
 
