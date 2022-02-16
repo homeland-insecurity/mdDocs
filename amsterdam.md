@@ -18,13 +18,15 @@
 2) This [food hall](https://foodhallen.nl/amsterdam/food-and-drinks) looks pretty dope.
 3) [Street fries](https://rorymoulton.com/amsterdam-french-fries-frites-frieten/)
 4) If anyone is a fan of [cheese](https://www.tripadvisor.com/Restaurant_Review-g188590-d1193265-Reviews-Het_Karbeel-Amsterdam_North_Holland_Province.html)
+5) [Cofeeshop](https://www.tripadvisor.com/Attraction_Review-g188590-d7771319-Reviews-Paradox_Coffeeshop-Amsterdam_North_Holland_Province.html)
 #### Bars/Clubs
 1) [Canal booze cruise](https://weareamsterdam.com/product/amsterdam-booze-cruise/)
-2)
-3)
+2) Chicago social club is supposed to be a cool dance club.
+3) [Jazz club](http://www.jazz-cafe-alto.nl/)
+4) [Several craft breweries](https://www.cntraveler.com/stories/2014-01-28/amsterdam-best-beer-craft-breweries)
 #### Things to see
 1) There are [tulip festivals](https://tulipfestivalamsterdam.com/event/tulp-festival/) that run through early may and you can take a train to tulip fields.
 2)
 ### Day trips from Amsterdam
-
+1) [Trip to Giethoorn](https://www.viator.com/tours/Amsterdam/Giethoorn-Day-Trip-from-Amsterdam/d525-39989P1)
 
