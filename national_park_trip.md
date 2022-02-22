@@ -12,6 +12,7 @@
 
 `Cost for 1 night: $47-$86`
 `PHX-->Sedona: 2hrs`
+
 2) Next day, head to grand canyon np. After GC, head to Page, AZ. 
     - [airbnb 1](https://www.airbnb.com/rooms/548600543455487962?adults=10&check_in=2022-05-06&check_out=2022-05-07&federated_search_id=3b74ba1d-6e81-4b8f-b69e-14be519b949a&source_impression_id=p3_1645502107_Jhptrs6YIxFL39FM)
 
