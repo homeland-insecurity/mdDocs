@@ -15,6 +15,6 @@
 
 #### Instructions
 1) start rice
-2) while the rice is cooking, saute the veggies in olive oil and add salt, pepper, paprika, turmerica and cayanne pepper
+2) while the rice is cooking, saute the veggies in olive oil and add salt, pepper, paprika, turmeric and cayanne pepper
 3) when the veggies are close to done, move them to one half of the saute pan, then scramble the eggs on the other side
 4) once the rice and veggies are done, combine them and add soy sauce until you like the flavor
